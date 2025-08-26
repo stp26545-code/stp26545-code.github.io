@@ -1,1 +1,4 @@
-# stp26545-code.github.io
+Thanachai Khuanhat [Chokun] 
+NO.1
+4/3 
+STP
